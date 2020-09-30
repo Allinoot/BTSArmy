@@ -1,2 +1,25 @@
 # NCTzens
-Heading Level 3
+## Members of NCT
+Taeyong
+Jaehyun
+Lucas
+Jisung
+Jaemin
+Mark
+Yuta
+Ten
+Johnny
+Jung-woo
+Jeno
+Haechan
+WinWin
+Renjun
+Chenle
+Doyoung
+Hendery
+Kun
+Taeil
+Yangyang
+Xiaojun
+**Shotaru**
+**Sungchan**
