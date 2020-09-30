@@ -23,3 +23,5 @@ Yangyang,
 Xiaojun,
 **Shotaru**,
 **Sungchan**
+
+*The bolded members are the newest members of NCT 2020!*
