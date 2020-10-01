@@ -35,6 +35,8 @@ The members change depending on who fits the concept, but for now the members ar
 
 Taeil, Doyoung, Jaehyun, Ten, Taeyong, Mark, Haechan, Jungwoo, Kun, Lucas, and Winwin
 
+![NCTU](https://sterling-sound.com/wp-content/uploads/Nct_-768x592.png)
+
 ### NCT 127
 Taeil, Johnny, Taeyong, Yuta, Doyoung, Jaehyun, Jungwoo, Mark, Winwin, and Haechan
 
