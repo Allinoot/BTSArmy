@@ -61,4 +61,4 @@ For more information about the basics of NCT, you can visit
 
 <https://kprofiles.com/nct-members-profile/>
 
-Along with many more on Youtube!
+Along with many more fantastic guides Youtube!
