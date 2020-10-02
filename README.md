@@ -1,6 +1,6 @@
-# NCTzens
+# NCTZENs
 
-Hello all NCTzens! This page is for the basics of NCT. Welcome to the fandom!
+Hello all NCTZENs! This page is for the basics of NCT. Welcome to the fandom!
 
 ## Members of NCT
 Taeyong,
