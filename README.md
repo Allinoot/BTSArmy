@@ -51,3 +51,10 @@ Mark, Renjun, Jeno, Haechan, Jaemin, Chenle, and Jisung
 Kun, Ten, Winwin, Lucas, Xiaojun, Hendery, and Yangyang
 
 ![WayV](https://www.allkpop.com/upload/2019/05/content/080738/20190508-wayvjpg.jpg)
+
+## Additional Resources
+For more information about the basics of NCT, you can visit
+
+<http://nct.smtown.com/Intro>
+<https://www.sbs.com.au/popasia/blog/2018/07/09/beginners-guide-nct>
+<https://kprofiles.com/nct-members-profile/>
