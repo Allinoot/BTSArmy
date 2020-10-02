@@ -40,6 +40,8 @@ Taeil, Doyoung, Jaehyun, Ten, Taeyong, Mark, Haechan, Jungwoo, Kun, Lucas, and W
 ### NCT 127
 Taeil, Johnny, Taeyong, Yuta, Doyoung, Jaehyun, Jungwoo, Mark, Winwin, and Haechan
 
+![NCT127](https://thestandom.com/wp-content/uploads/2019/09/nct-127-2.jpg)
+
 ### NCT Dream
 Mark, Renjun, Jeno, Haechan, Jaemin, Chenle, and Jisung
 
