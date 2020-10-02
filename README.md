@@ -49,3 +49,5 @@ Mark, Renjun, Jeno, Haechan, Jaemin, Chenle, and Jisung
 
 ### WayV
 Kun, Ten, Winwin, Lucas, Xiaojun, Hendery, and Yangyang
+
+![WayV](https://www.allkpop.com/upload/2019/05/content/080738/20190508-wayvjpg.jpg)
