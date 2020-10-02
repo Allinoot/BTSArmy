@@ -33,9 +33,9 @@ Xiaojun,
 ### NCT U
 The members change depending on who fits the concept, but for now the members are...
 
-Taeil, Doyoung, Jaehyun, Ten, Taeyong, Mark, Haechan, Jungwoo, Kun, Lucas, and Winwin
+Taeil, Doyoung, Jaehyun, Ten, Taeyong, Mark, Haechan, Jungwoo, Lucas, and Winwin
 
-![NCTU](https://sterling-sound.com/wp-content/uploads/Nct_-768x592.png)
+![NCTU](https://lastfm.freetls.fastly.net/i/u/770x0/af0a710c133d0713f2e933073ee01668.jpg)
 
 ### NCT 127
 Taeil, Johnny, Taeyong, Yuta, Doyoung, Jaehyun, Jungwoo, Mark, Winwin, and Haechan
