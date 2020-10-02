@@ -45,5 +45,7 @@ Taeil, Johnny, Taeyong, Yuta, Doyoung, Jaehyun, Jungwoo, Mark, Winwin, and Haech
 ### NCT Dream
 Mark, Renjun, Jeno, Haechan, Jaemin, Chenle, and Jisung
 
+![NCTDream](https://www.hellokpop.com/wp-content/uploads/2018/12/Photo-from-IMBC-660x400.jpg)
+
 ### WayV
 Kun, Ten, Winwin, Lucas, Xiaojun, Hendery, and Yangyang
