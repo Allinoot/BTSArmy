@@ -31,11 +31,11 @@ Xiaojun,
 
 ## NCT Subunits
 ### NCT U
-The members change depending on who fits the concept, but for now the members are...
+The members change depending on the concept of the song. The members for NCTU Boss Era were...
 
-Taeil, Doyoung, Jaehyun, Ten, Taeyong, Mark, Haechan, Jungwoo, Lucas, and Winwin
+Taeyong, Mark, Jaehyun, Doyoung, Winwin, Jungwoo, and Lucas
 
-![NCTU](https://lastfm.freetls.fastly.net/i/u/770x0/af0a710c133d0713f2e933073ee01668.jpg)
+![NCTU](https://lastfm.freetls.fastly.net/i/u/770x0/4ad1583302667c9de572fb86183ba284.jpg)
 
 ### NCT 127
 Taeil, Johnny, Taeyong, Yuta, Doyoung, Jaehyun, Jungwoo, Mark, Winwin, and Haechan
