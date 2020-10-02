@@ -60,3 +60,5 @@ For more information about the basics of NCT, you can visit
 <https://www.sbs.com.au/popasia/blog/2018/07/09/beginners-guide-nct>
 
 <https://kprofiles.com/nct-members-profile/>
+
+Along with many more on Youtube!
